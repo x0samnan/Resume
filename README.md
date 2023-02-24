@@ -1,3 +1,3 @@
 # Resume / Curriculum Vitae
 
-Updated: 20/02/2023
+Updated: 24/02/2023
